@@ -1,0 +1,1 @@
+# Kto-odwiedza-swieto-kukurydzy-Problem-KLASTERYZACJI-grup-konsumentow-na-wiejskim-jarmarku.
